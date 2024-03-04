@@ -1,4 +1,4 @@
-hi, I'm mewn! more info in rentry, but just whisper on pt if you want to talk. just pls don't be weird
+hi, I'm mewn! more info in rentry, but whisper on pt if you want to talk. just pls don't be weird I'll get sad
 
   
 ![ain](https://i.imgur.com/CdJ8ha1.png) ![lofty anpassen](https://files.catbox.moe/7c743u.gif) ![opfy](https://i.imgur.com/PDgcbSy.gif) ![mad paradox](https://i.imgur.com/vLsgpJU.gif) ![overmind](https://i.imgur.com/12IBQai.gif) ![nyx](https://i.imgur.com/KvA7TBX.gif) 
