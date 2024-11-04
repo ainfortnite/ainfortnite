@@ -1,4 +1,4 @@
-hi, I'm mewn! I am usually wandering and looking at horses, but I sometimes sit near the PM library section on the safe server. in either case, you are always welcome to whisper and chat! I request you please do not talk about sex to me (jokes are fine) or ask very personal questions. I am best at talking about project moon and elsword, but if I have a skin of a certain media that is likely fair game as well. :)
+hi, I'm mewn! I am usually wandering and looking at horses, but I sometimes sit near the library section on the safe server. in either case, you are always welcome to whisper and chat! I request you please do not talk about sex to me (jokes are fine) or ask very personal questions. I am best at talking about project moon and elsword, but if I have a skin of a certain media that is likely fair game as well. :)
 
 
 
