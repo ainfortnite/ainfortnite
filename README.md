@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.imgur.com/EdZNmfw.png" alt="make the exorcist fall in love" url="https://myanimelist.net/manga/142629/Exorcist_wo_Otosenai">
+  <img src="https://i.imgur.com/EdZNmfw.png" alt="make the exorcist fall in love">
 </p>
 
 <p align="center">
