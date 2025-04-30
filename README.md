@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-hi, I'm mewn! I am usually wandering and looking at horses, but I sometimes sit near the library section on the safe server. in either case, you are always welcome to whisper and chat! I request you please do not talk about sex to me (jokes are fine) or ask very personal questions. I am best at talking about project moon and elsword, but if I have a skin of a certain media that is likely fair game as well. :)
+hi, I'm mewn! I am most often with my friends while sitting or wandering, but you are welcome to whisper and chat in either case! responses will likely be slower if I'm actively walking. I reaally like elsword and project moon, but if I have a skin of something then I'm usually happy to talk about that too !! you will probably see me with something related to horse race test (hrt) right now ^.^
 </p>
 
 
