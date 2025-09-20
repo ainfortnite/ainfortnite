@@ -4,7 +4,9 @@
 
 <p align="center">
 hi, I'm mewn! I am most often with my friends while sitting or wandering, but you are welcome to whisper and chat in either case! responses will likely be slower if I'm actively walking. I reaally like elsword and project moon, but if I have a skin of something then I'm usually happy to talk about that too !! you will probably see me with something related to horse race test (hrt) right now ^.^
-</p>
+
+
+I highkey need to redo my strawpage and add new things to this but I am locked out ... he/him 18 blah blah</p>
 
 
 
